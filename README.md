@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @letiroman
+- 👀 I’m interested in technology, design, films and music.
+- 🌱 I’m currently learning MEng Industrial Engineering + Technological Innovation
